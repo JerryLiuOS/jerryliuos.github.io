@@ -1,2 +1,0 @@
-# jerryliuos.github.io
-Blog
